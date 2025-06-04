@@ -1,2 +1,5 @@
 # UMass-Boston-Amaka-Nwosu
-tips to organizing research
+Tips to organizing research.\
+A future physician-scientist.\
+Mentoring, analyzing, helping.\
+Communication, scheduling, weekly planning. 
